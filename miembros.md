@@ -26,4 +26,5 @@
 24. Joker
 25. Aura del mal
 26. Morbious
+27. Thanos
 
