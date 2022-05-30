@@ -1,3 +1,3 @@
 # Notas
 
-DE momento no tenemos aspirantes
+De momento no tenemos aspirantes conocidos
