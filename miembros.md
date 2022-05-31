@@ -27,4 +27,5 @@
 25. Aura del mal
 26. Morbious
 27. Thanos
+28. Dare Devil
 
